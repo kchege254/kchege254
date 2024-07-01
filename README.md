@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with like minded people.
 - 📫 How to reach me. not sure jet
 - 😄 Pronouns:  Mr 
-- ⚡ Fun fact: not sure is not the same us typing.
+- ⚡ Fun fact: not sure if coding is the same us typing.
 
 <!---
 kchege254/kchege254 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
